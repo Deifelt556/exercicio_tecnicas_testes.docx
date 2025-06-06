@@ -1,0 +1,1 @@
+# exercicio_tecnicas_testes.docx
